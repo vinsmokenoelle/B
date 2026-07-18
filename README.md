@@ -2,6 +2,6 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-__Darby__     ,      Any/It     , _Agender_ and fictoromantic
+__Darby__           ,      Any/It           , _Agender_ and fictoromantic
 
-Misophonia + *Autism*   , black irl (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
+Misophonia + *Autism*             , black irl (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
